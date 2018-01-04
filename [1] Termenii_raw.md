@@ -8,7 +8,7 @@ apologie – (proză), argument, arnaism, armonie, artă pentru artă, asonanț�
 
   Baladă, bard, basm, best-seller, bildungsroman, biografie, bocet, bovarism, bucolic, bufon, burlesc.
 
-  Calambur, canon, canțonă, canțonetă, capodoperă, caracter, categorie estetică, catharsis, cazanie, ceaslov, chiasm, citat, clasic, clasicism, clișeu, cod, codificare, colind, comic, comedia dell’Arte, comparație, compoziție, conflict, conotație, contaminare, context, contrast, corespondență literară, creativitate, critică literară, cronică, culoare locală, curent literar, cvintet.
+  Calambur, canon, canțonă, canțonetă, capodoperă, caracter, categorie estetică, catharsis, cazanie, ceaslov, chiasm, citat, clasic, clasicism, clișeu, cod, codificare, colind, comic, commedia dell’Arte, comparație, compoziție, conflict, conotație, contaminare, context, contrast, corespondență literară, creativitate, critică literară, cronică, culoare locală, curent literar, cvintet.
 
   Dadaism, decorum, demitizare, denotație-conotație, descriere, deznodământ, diacronie, dialog, dicton, discurs, dramă, dramatic, dramaturgie, dramatizare.
 
