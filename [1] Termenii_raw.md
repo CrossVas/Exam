@@ -6,7 +6,7 @@
   Absurd, acrostih, afabulație, aforism, acțiune – (proză), alegorie, alexandrin, aliterație, amintiri, anaforă, anale, alocuțiune, anacronism, analiză literară, anapest, anecdotă literară, anonim, antici și moderni, antiroman, antiteză, antologie, apocalips, 
 apologie – (proză), argument, arnaism, armonie, artă pentru artă, asonanță, autobiografie, avangardă.
 
-  Baladă, bard, basm, best-seller, buildingsroman, biografie, bocet, bovarism, bucolic, bufon, burlesc.
+  Baladă, bard, basm, best-seller, bildungsroman, biografie, bocet, bovarism, bucolic, bufon, burlesc.
 
   Calambur, canon, canțonă, canțonetă, capodoperă caracter, categorie estetică, catharsis, cazanie, ceaslov, chiasm, citat, clasic, clasicism, clișeu, cod, codificare, colind, comic, comedia dell’Arte, comparație, compoziție, conflict, conotație, contaminare, context, contrast, corespondență literară, creativitate, critică literară, cronică, culoare locală, curent literar, cvintet.
 
