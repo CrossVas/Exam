@@ -27,3 +27,39 @@ Anaforă - Procedeu stilistic care constă în repetarea aceluiași cuvânt la �
 Anale - Scriere istorică în care se povestesc an cu an întâmplările din viața unui popor, a unui oraș, a unei familii.
 
 Alocuțiune - Cuvântare a unui general sau împărat adresată oștirii sale
+
+Anacronism - Eroare constând în punerea unei întâmplări în alt timp decât în cel când a avut loc
+
+Analiză literară - Punere în evidență a ideilor principale, a valorii artistice, a caracterelor distinctive etc. ale unei scrieri literare
+
+Anapest - Picior metric alcătuit din două silabe neaccentuate, urmate de una accentuată
+
+Anecdotă literară - Întâmplările descrise într-o operă literară; intrigă, scenariu, acțiune epică
+
+Anonim - Care rămâne necunoscut.
+
+Antici și moderni - Care aparține timpurilor apropiate de vorbitor sau timpurilor îndepărtate (vechi).
+
+Antiroman - Roman modern care nu respectă estetica consacrată a romanului și care ilustrează o nouă estetică
+
+Antiteză - Opoziție dialectică între două fenomene, idei, judecăți etc.
+
+Antologie - Culegere de lucrări reprezentative, alese dintr-unul sau din mai mulți autori
+
+Apocalips - Foarte greu de înțeles, obscur. 2. Sfârșitul lumii.
+
+Apologie - logiu, laudă ferventă (și adesea exagerată) adusă unei persoane, unei idei etc.; apărare (servilă și interesată) a cuiva sau a ceva
+
+Argument - Raționament, dovadă adusă în sprijinul unei afirmații.
+
+Arhaism - Cuvânt, expresie sau construcție învechită, folosită în limba operelor literare cu scopul de a reda culoarea locală.
+
+Armonie - Potrivire desăvârșită a părților unui întreg.
+
+Artă Pentru Artă - subiectul principal al conferinței citite de către Anton Bacalbașa.
+
+Asonanță - Rimă imperfectă formată numai din identitatea vocalei accentuate. 2 Repetare a aceleiași vocale accentuate într-un vers sau într-o frază, însoțită de consoane asemănătoare, pentru a produce efecte expresive.
+
+Autobiografie - Biografia unei persoane făcută în scris sau oral de ea însăși
+
+Avangardă - Care merge în frunte. 2. Mișcare artistică având rol de precursor pentru alte mișcări moderniste.
