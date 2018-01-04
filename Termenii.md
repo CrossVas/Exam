@@ -1,7 +1,7 @@
-                      APARATUL TERMINOLOGIC NECESAR PENTRU A ANALIZA COMPETENȚA A GENERALIZA PROBLEME CE ȚIN DE CURSUL 
-                                                    T E O R I A L I T E R A T U R I I 
+                    APARATUL TERMINOLOGIC NECESAR PENTRU A ANALIZA COMPETENȚA A GENERALIZA PROBLEME CE ȚIN DE CURSUL 
+                                                  T E O R I A L I T E R A T U R I I 
 
-                                        Definiți și comentați cu lux de amănunte următorii termeni:
+                                      Definiți și comentați cu lux de amănunte următorii termeni:
                                         
   Absurd, acrostih, afabulație, aforism, acțiune – (proză), alegorie, alexandrin, aliterație, amintiri, anaforă, anale, alocuțiune, anacronism, analiză literară, anapest, anecdotă literară, anonim, antici și moderni, antiroman, antiteză, antologie, apocalips, 
 apologie – (proză), argument, arnaism, armonie, artă pentru artă, asonanță, autobiografie, avangardă.
