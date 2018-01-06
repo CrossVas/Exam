@@ -2,18 +2,27 @@
 Din nou, noi 
 
 Bun, dar cu noi cum rămâne?
+
 Ei au fost mari, tragici, sfinţi...
+
 Ei au mâncat pâine,
+
 părinţilor noştri le-au fost părinţi.
 
 Dar noi, dar cu noi?...
+
 Lor le-a fost frig, au pătimit,
+
 au mers prin zăpadă, prin noroi,
+
 au murit şi s-au nemurit.
 
 Noi trăim, cu noi cum rămâne?
+
 S-a hotărât ceva? S-a hotărât?
+
 Când anume şi ce anume?
+
 Suntem, dar ne este urât!
 
 
@@ -29,6 +38,7 @@ Again, we
 
 
 Autor: Nichita Stănescu
+
 Tradus de 
 
 
